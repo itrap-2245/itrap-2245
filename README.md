@@ -5,7 +5,7 @@ $\color{#8face3}{─ .✦}$ $\color{#8face3}{Call}$ $\color{#8face3}{me}$ $\colo
 </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=cassie-2245&color=blue" alt="Profile view counter on GitHub">
+  <img src="https://komarev.com/ghpvc/?username=itrap-2245&color=blue" alt="Profile view counter on GitHub">
 </p>
 
 <p align="center">
