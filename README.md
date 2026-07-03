@@ -13,7 +13,7 @@ $\color{#8face3}{─ .✦}$ $\color{#8face3}{Call}$ $\color{#8face3}{me}$ $\colo
 </p>
 
 <p align="center">
-   <img src="https://blinkies.cafe/b/blinkiesCafe-O0.gif">
+   <img src="https://64.media.tumblr.com/cee63501be5b1b5a8b2fb9a25caa9595/2a2a4eb1662bc407-8e/s100x200/c4a932488505de74d1348b7a67d843f9828fdefa.pnj">
   </p>
 
 <p align="center">
@@ -111,7 +111,7 @@ $\color{#8face3}{ᰔ ⊹˚₊}$ <a href="https://itrap-2245.atabook.org">ATA</a>
 </p>
 
  <p align="center">
-   <img src="https://blinkies.cafe/b/blinkiesCafe-QA.gif">
+   <img src="https://64.media.tumblr.com/1121f4107c33949a4c1e8df1d84bd569/2a2a4eb1662bc407-58/s100x200/9a6742f286d32902f03d350ea842e7e0e81a26a7.pnj">
   </p>
 
 <p align="center">
