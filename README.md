@@ -97,7 +97,7 @@ $\color{#6d8dc9}{↓ DNI ↓}$
 </p>
 
 <p align="center">
-$\color{#8face3}{ᰔ ⊹˚₊}$ <a href="https://itrap-2245.atabook.org">ATA</a> $\color{#8face3}{♡}$ <a href="https://don2245.straw.page">STRAWPAGE (OUTDATED)</a> $\color{#8face3}{♡}$ <a href="https://rentry.co/7o9y4chw">RENTRY (OUTDATED)</a> $\color{#8face3}{♡}$ <a href="https://pronouns.cc/@itrap_2245">PRNS.CC</a> $\color{#8face3}{/}$ <a href="https://en.pronouns.page/@itrap_2245">PRNS PAGE</a> $\color{#8face3}{♡}$ <a href="https://guns.lol/itrap_2245">GUNS.LOL</a> $\color{#8face3}{₊˚⊹ ᰔ}$
+$\color{#8face3}{ᰔ ⊹˚₊}$ <a href="https://itrap-2245.atabook.org">ATA</a> $\color{#8face3}{♡}$ <a href="https://itrap-2245.straw.page">STRAWPAGE (NEW)</a> $\color{#8face3}{♡}$ <a href="https://rentry.co/7o9y4chw">RENTRY (OUTDATED)</a> $\color{#8face3}{♡}$ <a href="https://pronouns.cc/@itrap_2245">PRNS.CC</a> $\color{#8face3}{/}$ <a href="https://en.pronouns.page/@itrap_2245">PRNS PAGE</a> $\color{#8face3}{♡}$ <a href="https://guns.lol/itrap_2245">GUNS.LOL</a> $\color{#8face3}{₊˚⊹ ᰔ}$
 </p>
 
 <p align="center">
