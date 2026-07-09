@@ -57,7 +57,7 @@ $\color{#8face3}{I}$ $\color{#8face3}{might}$ $\color{#8face3}{unfriend /}$ $\co
 </p>
 
 <p align="center">
-  $\color{#8face3}{You}$ $\color{#8face3}{can}$ $\color{#8face3}{ask}$ $\color{#8face3}{for}$ $\color{#8face3}{my}$ $\color{#8face3}{discord.}$ $\color{#8face3}{Idm!!}$ $\color{#8face3}{It's}$ $\color{#8face3}{on}$ $\color{#8face3}{my}$ $\color{#8face3}{guns}$ $\color{#8face3}{page(?)}$ $\color{#8face3}{too.}$ 
+  $\color{#8face3}{You}$ $\color{#8face3}{can}$ $\color{#8face3}{ask}$ $\color{#8face3}{for}$ $\color{#8face3}{my}$ $\color{#8face3}{discord.}$ $\color{#8face3}{Idm!!}$ $\color{#8face3}{It's}$ $\color{#8face3}{on}$ $\color{#8face3}{my}$ $\color{#8face3}{guns}$ $\color{#8face3}{page(?)}$ $\color{#8face3}{too}$ $\color{#8face3}{(the}$ $\color{#8face3}{snowflake}$ $\color{#8face3}{btw).}$
 </p>
 
 <p align="center">
