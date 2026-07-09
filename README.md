@@ -1,6 +1,10 @@
 ![hi](https://64.media.tumblr.com/33934a5225ec829dda86a99ce5f9ce5b/93ce3cb722e5249f-a4/s1280x1920/9a0582a6c610922f50f2e31de2a2fd946a10af46.pnj)
 
 <p align="center">
+$\color{#ff0000}{CLOVER'S}$ $\color{#ff0000}{FRIENDS}$ $\color{#ff0000}{IWEC /}$ $\color{#ff0000}{DNI.}$
+</p>
+
+<p align="center">
 $\color{#8face3}{─ .✦}$ $\color{#8face3}{Call}$ $\color{#8face3}{me}$ $\color{#8face3}{iTrapped /}$ $\color{#8face3}{Isaac}$ $\color{#8face3}{₊˚｡❆}$
 </p>
 
