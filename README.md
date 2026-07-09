@@ -1,7 +1,7 @@
 ![hi](https://64.media.tumblr.com/33934a5225ec829dda86a99ce5f9ce5b/93ce3cb722e5249f-a4/s1280x1920/9a0582a6c610922f50f2e31de2a2fd946a10af46.pnj)
 
 <p align="center">
-$\color{#ff0000}{CLOVER'S}$ $\color{#ff0000}{FRIENDS}$ $\color{#ff0000}{IWEC /}$ $\color{#ff0000}{DNI.}$
+$\color{#ff0000}{CLOVER'S}$ $\color{#ff0000}{FRIENDS}$ $\color{#ff0000}{IWVVEC /}$ $\color{#ff0000}{DNI.}$
 </p>
 
 <p align="center">
