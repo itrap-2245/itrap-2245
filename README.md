@@ -5,6 +5,22 @@ $\color{#ff0000}{CLOVER'S}$ $\color{#ff0000}{FRIENDS}$ $\color{#ff0000}{IWVVEC /
 </p>
 
 <p align="center">
+$\color{#ff0000}{I}$ $\color{#ff0000}{put}$ $\color{#ff0000}{it}$ $\color{#ff0000}{for}$ $\color{#ff0000}{my}$ $\color{#ff0000}{own}$ $\color{#ff0000}{comfort}$ $\color{#ff0000}{and}$ $\color{#ff0000}{safety.}$
+</p>
+
+<p align="center">
+  <img src="https://files.catbox.moe/lqgwhf.png" alt="hi">
+</p>
+
+<p align="center">
+$\color{#ff0000}{↑ son 😭 ↑}$
+</p>
+
+<p align="center">
+$\color{#ff0000}{Please}$ $\color{#ff0000}{don't}$ $\color{#ff0000}{harass}$ $\color{#ff0000}{me}$ $\color{#ff0000}{for}$ $\color{#ff0000}{wanting}$ $\color{#ff0000}{to}$ $\color{#ff0000}{feel}$ $\color{#ff0000}{comfortable.}$
+</p>
+ 
+<p align="center">
 $\color{#8face3}{─ .✦}$ $\color{#8face3}{Call}$ $\color{#8face3}{me}$ $\color{#8face3}{iTrapped /}$ $\color{#8face3}{Isaac}$ $\color{#8face3}{₊˚｡❆}$
 </p>
 
