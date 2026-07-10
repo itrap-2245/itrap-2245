@@ -1,24 +1,4 @@
 ![hi](https://64.media.tumblr.com/33934a5225ec829dda86a99ce5f9ce5b/93ce3cb722e5249f-a4/s1280x1920/9a0582a6c610922f50f2e31de2a2fd946a10af46.pnj)
-
-<p align="center">
-$\color{#ff0000}{CLOVER'S}$ $\color{#ff0000}{FRIENDS}$ $\color{#ff0000}{IWVVEC /}$ $\color{#ff0000}{DNI.}$
-</p>
-
-<p align="center">
-$\color{#ff0000}{I}$ $\color{#ff0000}{put}$ $\color{#ff0000}{it}$ $\color{#ff0000}{for}$ $\color{#ff0000}{my}$ $\color{#ff0000}{own}$ $\color{#ff0000}{comfort}$ $\color{#ff0000}{and}$ $\color{#ff0000}{safety.}$
-</p>
-
-<p align="center">
-  <img src="https://files.catbox.moe/lqgwhf.png" alt="hi">
-</p>
-
-<p align="center">
-$\color{#ff0000}{↑ son 😭 ↑}$
-</p>
-
-<p align="center">
-$\color{#ff0000}{Please}$ $\color{#ff0000}{don't}$ $\color{#ff0000}{harass}$ $\color{#ff0000}{me}$ $\color{#ff0000}{for}$ $\color{#ff0000}{wanting}$ $\color{#ff0000}{to}$ $\color{#ff0000}{feel}$ $\color{#ff0000}{comfortable.}$
-</p>
  
 <p align="center">
 $\color{#8face3}{─ .✦}$ $\color{#8face3}{Call}$ $\color{#8face3}{me}$ $\color{#8face3}{iTrapped /}$ $\color{#8face3}{Isaac}$ $\color{#8face3}{₊˚｡❆}$
