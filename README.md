@@ -21,11 +21,7 @@ $\color{#8face3}{─ .✦}$ $\color{#8face3}{Call}$ $\color{#8face3}{me}$ $\colo
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/wazqin.png">
-</p>
-
-<p align="center">
-  $\color{#202a38}{↑ Link}$ $\color{#202a38}{to}$ $\color{#202a38}{their}$ $\color{#202a38}{github}$ <a href="https://github.com/title-town">here</a> $\color{#202a38}{since}$ $\color{#202a38}{idk}$ $\color{#202a38}{how}$ $\color{#202a38}{to}$ $\color{#202a38}{link}$ $\color{#202a38}{images... ↑}$
+<a href="https://github.com/title-town"> <img width="257" height="41" alt="hi" src="https://files.catbox.moe/wazqin.png" />
 </p>
 
 <p align="center">
