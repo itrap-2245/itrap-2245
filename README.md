@@ -5,7 +5,7 @@ $\color{#8face3}{─ .✦}$ $\color{#8face3}{Call}$ $\color{#8face3}{me}$ $\colo
 </p>
 
 <p align="center">
-<a href="https://www.imood.com/users/itrap_2245"><img src="https://moods.imood.com/display/uname-itrap_2245/imood.gif" alt="The current mood of itrap_2245 at www.imood.com" border="0"></a>
+<a href="https://www.imood.com/users/itrap_2245"><img src="https://moods.imood.com/display/uname-itrap_2245/fg-ffffff/bg-03d3fc/imood.gif" alt="The current mood of itrap_2245 at www.imood.com" border="0"></a>
 </p>
 
 <p align="center">
