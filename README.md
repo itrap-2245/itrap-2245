@@ -29,6 +29,10 @@ $\color{#8face3}{─ .✦}$ $\color{#8face3}{Call}$ $\color{#8face3}{me}$ $\colo
 </p>
 
 <p align="center">
+<a href="https://github.com/pt-walk-of-fame"> <img width="257" height="41" alt="hi" src="https://i.postimg.cc/Pr7sSVRZ/obraz-2026-07-27-002558083.png" />
+</p>
+
+<p align="center">
 $\color{#8face3}{Bmf!}$ $\color{#8face3}{I'm}$ $\color{#8face3}{super}$ $\color{#8face3}{friendly}$ $\color{#8face3}{once}$ $\color{#8face3}{you}$ $\color{#8face3}{get}$ $\color{#8face3}{to}$ $\color{#8face3}{know}$ $\color{#8face3}{me!}$
 </p>
 
