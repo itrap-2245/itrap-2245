@@ -3,7 +3,7 @@
 </p>
 
 <p align="center">
-will finish this later. im too overwhelmed now. <- 28.07.26.
+will finish this later. im too overwhelmed now. oh also dni if ur gonna have 2 iq and block me for the most stupidest reason. like gen dni at all. <- 28.07.26.
 </p>
 
 <p align="center">
