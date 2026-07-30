@@ -15,11 +15,11 @@
 </p>
 
 <p align="center">
-$\color{#5cb8eb}{iTrapped /}$ $\color{#5cb8eb}{Isaac}$ ‎ ‎ ‎ $\color{#0b4374}{𖹭}$ ‎ ‎ ‎ $\color{#5cb8eb}{She /}$ $\color{#5cb8eb}{Any}$ $\color{#0b4374}{.ᐟ}$ $\color{#5cb8eb}{AFAB}$
+$\color{#0b4374}{ᰔ ⊹˚₊}$‎ ‎  $\color{#5cb8eb}{iTrapped /}$ $\color{#5cb8eb}{Isaac}$ ‎ ‎ ‎ $\color{#0b4374}{𖹭}$ ‎ ‎ ‎ $\color{#5cb8eb}{She /}$ $\color{#5cb8eb}{Any}$ $\color{#0b4374}{.ᐟ}$ $\color{#5cb8eb}{AFAB}$ ‎ ‎ $\color{#0b4374}{₊˚⊹ ᰔ}$
 </p>
 
 <p align="center">
-  $\color{#5cb8eb}{sx6}$ $\color{#0b4374}{.ᐟ}$ $\color{#5cb8eb}{sx/sp}$ $\color{#5cb8eb}{694}$
+  $\color{#0b4374}{⟡˙⋆}$‎ ‎ ‎ $\color{#5cb8eb}{sx6}$ $\color{#0b4374}{.ᐟ}$ $\color{#5cb8eb}{sx/sp}$ $\color{#5cb8eb}{694}$‎ ‎ $\color{#0b4374}{⋆˙⟡}$
 </p>
 
 <p align="center">
@@ -27,11 +27,11 @@ $\color{#5cb8eb}{iTrapped /}$ $\color{#5cb8eb}{Isaac}$ ‎ ‎ ‎ $\color{#0b43
 </p>
 
 <p align="center">
-  $\color{#5cb8eb}{Suffering}$ $\color{#5cb8eb}{from}$ $\color{#5cb8eb}{low}$ $\color{#5cb8eb}{iron}$
+  $\color{#0b4374}{⋆｡‧˚ʚ}$ ‎ ‎ $\color{#5cb8eb}{Suffering}$ $\color{#5cb8eb}{from}$ $\color{#5cb8eb}{low}$ $\color{#5cb8eb}{iron}$ ‎ ‎ $\color{#0b4374}{ɞ˚‧｡⋆}$
 </p>
 
 <p align="center">
-  $\color{#5cb8eb}{c+h}$ $\color{#5cb8eb}{freely}$
+  $\color{#0b4374}{˚₊‧꒰ა}$ ‎ ‎ $\color{#5cb8eb}{c+h}$ $\color{#5cb8eb}{freely}$ ‎ ‎ $\color{#0b4374}{໒꒱ ‧₊˚}$
 </p>
 
 <p align="center">
