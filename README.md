@@ -39,7 +39,7 @@ $\color{#0b4374}{ᰔ ⊹˚₊}$‎ ‎  $\color{#5cb8eb}{iTrapped /}$ $\color{#5
 </p>
 
 <p align="center">
-  $\color{#0b4374}{⊹₊˚‧︵‿₊୨}$‎ <a href="https://itrap-2245.straw.page">strawpage</a> $\color{#5cb8eb}{ᰔ}$‎ <a href="https://itrap-2245.atabook.org">atabook</a> $\color{#5cb8eb}{ᰔ}$‎ <a href="https://pronouns.cc/@itrap_2245">prns.cc</a> $\color{#5cb8eb}{ᰔ}$‎ <a href="https://guns.lol/itrap_2245">guns.lol</a> $\color{#0b4374}{୧₊‿︵‧˚₊⊹}$‎
+  $\color{#0b4374}{⊹₊˚‧︵‿₊୨}$‎ <a href="https://itrap-2245.straw.page">strawpage</a> $\color{#5cb8eb}{ᰔ}$‎ <a href="https://itrap-2245.atabook.org">atabook</a> $\color{#5cb8eb}{ᰔ}$‎ <a href="https://pronouns.cc/@itrap_2245">prns.cc</a> $\color{#5cb8eb}{ᰔ}$ <a href="https://rentry.co/itrap_">rentry</a>‎ $\color{#5cb8eb}{ᰔ}$ <a href="https://guns.lol/itrap_2245">guns.lol</a> $\color{#0b4374}{୧₊‿︵‧˚₊⊹}$‎
 </p>
 
 <p align="center">
