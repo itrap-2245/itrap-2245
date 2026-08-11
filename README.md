@@ -1,4 +1,8 @@
 <p align="center">
+if anyone else asks me if i copied their friends pony the answer is $\color{red}{NO.}$ It's starting to annoy me that people are coming after me just because i made "similar" ponies to your friend. I do NOT take inspiration off of peoples ponies unless I'm allowed. It's all by mistake. Quit bringing that up. It's annoying me. Also here's the <a href="https://x.com/sqilow_/status/2060283304872743371/photo/1">picture 1</a> and <a href="https://x.com/sqilow_/status/2064276423632969800/photo/1">picture 2</a> i took inspo off. The other ones are my personal desings. Thank you.
+</p>
+
+<p align="center">
 <img src="https://files.catbox.moe/e97hda.png" alt=hi">
 </p>
 
