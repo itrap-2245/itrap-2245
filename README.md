@@ -3,6 +3,10 @@ if anyone else asks me if i copied their friends pony the answer is $\color{red}
 </p>
 
 <p align="center">
+Also please quit unfollowing and following me over and over again. It pisses me off. (targeted)
+</p>
+
+<p align="center">
 <img src="https://files.catbox.moe/e97hda.png" alt=hi">
 </p>
 
