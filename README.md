@@ -11,6 +11,14 @@ everything you see here is a HUGE wip. <- 21:00 17.08.2026
 </p>
 
 <p align="center">
+$\color{#166094}{₊‧°𐐪}$ $\color{#129eae}{✦}$ $\color{#f783a1}{iTrapped / \space Isaac}$ $\color{#129eae}{✦}$ $\color{#166094}{𐑂°‧₊}$
+</p>
+
+<p align="center">
+ $\color{#129eae}{✦}$ $\color{#f783a1}{She / \space Any}$ $\color{#129eae}{✦}$
+</p>
+
+<p align="center">
 <img src="https://files.catbox.moe/tnmayp.png" width="500" height="500"/>
 </p>
 
