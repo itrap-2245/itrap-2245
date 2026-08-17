@@ -1,7 +1,11 @@
 <p align="center">
-everything is being remade. will be done from a few hours to a few days. <- 18:43 17.08.2026\
+everything you see here is a HUGE wip. <- 21:00 17.08.2026
 </p>
 
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=itrap-2245&color=blue" alt="Profile view counter on GitHub">
+ $\color{#166094}{𓏵‧₊˚ ┊}$ <img src="https://komarev.com/ghpvc/?username=itrap-2245&color=f683a1&style=upper&label=V1C71M5."> $\color{#166094}{┊ ˚₊‧𓏵}$
+</p>
+
+<p align="center">
+<img src="https://files.catbox.moe/tnmayp.png">
 </p>
