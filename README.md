@@ -7,5 +7,13 @@ everything you see here is a HUGE wip. <- 21:00 17.08.2026
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/tnmayp.png">
+<img src="https://files.catbox.moe/vejeiv.png">
+</p>
+
+<p align="center">
+<img src="https://files.catbox.moe/tnmayp.png" width="500" height="500"/>
+</p>
+
+<p align="center">
+<img src="https://files.catbox.moe/vejeiv.png">
 </p>
