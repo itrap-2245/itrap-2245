@@ -1,5 +1,5 @@
 <p align="center">
-everything you see here is a HUGE wip. <- 21:00 17.08.2026
+im lazy to finish this <- 20.08.2026
 </p>
 
 <p align="center">
@@ -19,7 +19,7 @@ $\color{#166094}{₊‧°𐐪}$ $\color{#129eae}{✦}$ $\color{#f783a1}{iTrapped
 </p>
 
 <p align="center">
-<img src="https://files.catbox.moe/tnmayp.png" width="500" height="500"/>
+<img src="https://files.catbox.moe/tnmayp.png" width="500"/>
 </p>
 
 <p align="center">
