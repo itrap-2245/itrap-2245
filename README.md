@@ -1,5 +1,5 @@
 <p align="center">
-nad's or dark's friends dni lowkey lol
+hi guys
 </p>
 
 <p align="center">
