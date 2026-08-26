@@ -1,5 +1,5 @@
 <p align="center">
-stalker-chan's and evil stalker-chan's friends dni lol
+ok so my plan IS kinda working. anyway will remake this soon i dont like how this turned out ok? ok...
 </p>
 
 <p align="center">
