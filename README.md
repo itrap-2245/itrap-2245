@@ -1,5 +1,5 @@
 <p align="center">
-If u want to be friends then PLEASE add me on discord or approach me on pony town YOURSELF. I'm too shy to come up to people myself... okay...? :c
+If u want to be friends then PLEASE add me on discord or approach me / whisper me on pony town YOURSELF. I'm too shy to come up to people myself... okay...? :c
 </p>
 
 <p align="center">
