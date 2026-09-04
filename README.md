@@ -1,9 +1,5 @@
 <p align="center">
-If u want to be friends then PLEASE add me on discord or approach me / whisper me on pony town YOURSELF. I'm too shy to come up to people myself... okay...? :c
-</p>
-
-<p align="center">
-<img src="https://komarev.com/ghpvc/?username=itrap-2245&color=f683a1&style=upper&label=ouughhh"> <a href="https://www.imood.com/users/itrap_2245"><img src="https://moods.imood.com/display/uname-itrap_2245/fg-000000/bg-ffffff/imood.gif" alt="The current mood of itrap_2245 at www.imood.com" border="0"></a>
+<img src="https://komarev.com/ghpvc/?username=itrap-2245&color=f683a1&style=upper&label=ouughhh">
 </p>
 
 <p align="center">
