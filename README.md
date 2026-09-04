@@ -12,9 +12,32 @@ WIP.
 
 <p align="center">
 $\color{#b80084}{“ 𝘛𝘩𝘦~𝘮𝘰𝘰𝘯'𝘴~𝘣𝘭𝘦𝘴𝘴𝘪𝘯𝘨~𝘪𝘴~𝘺𝘰𝘶𝘳𝘴,~𝘸𝘩𝘦𝘯𝘦𝘷𝘦𝘳~𝘺𝘰𝘶~𝘮𝘪𝘨𝘩𝘵~𝘧𝘪𝘯𝘥~𝘺𝘰𝘶𝘳𝘴𝘦𝘭𝘧~𝘪𝘯~𝘯𝘦𝘦𝘥. ”}$
+</p>
 
+<div align="center">
+
+  <details>
+<summary>$\color{#b80084}{hobbies}$</summary>
+$\color{#6fe2f4}{WIP.}$
+</details>
+
+</div>
+
+<div align="center">
+
+  <details>
+<summary>$\color{#b80084}{DNI}$</summary>
+$\color{#6fe2f4}{WIP.}$
+</details>
+
+</div>
+    
 <p align="center">
 <img src="https://files.catbox.moe/p68rlx.png">
+</p>
+
+<p align="center">
+$\color{#b80084}{✎𓂃}$  <a href="https://itrap-2245.straw.page">strawpage</a> $\color{#b80084}{♡}$ <a href="https://itrap-2245.atabook.org">ata</a> $\color{#b80084}{♡}$ <a href="https://rentry.co/itrap_">rentry</a> $\color{#b80084}{♡}$ <a href="https://guns.lol/itrap_2245">guns.lol</a> $\color{#b80084}{𓂃}$
 </p>
 
 <div align="center">
