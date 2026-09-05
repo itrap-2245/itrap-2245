@@ -5,8 +5,6 @@
 <img align="left" src="https://files.catbox.moe/viuise.png"
  alt="hi" height="400"/> ㅤ
 
-$\color{#ffd700}{“ 𝘛𝘩𝘦\ 𝘮𝘰𝘰𝘯'𝘴\ 𝘣𝘭𝘦𝘴𝘴𝘪𝘯𝘨\ 𝘪𝘴\ 𝘺𝘰𝘶𝘳𝘴,\ 𝘸𝘩𝘦𝘯𝘦𝘷𝘦𝘳\ 𝘺𝘰𝘶\ 𝘮𝘪𝘨𝘩𝘵\ 𝘧𝘪𝘯𝘥\ 𝘺𝘰𝘶𝘳𝘴𝘦𝘭𝘧\ 𝘪𝘯\ 𝘯𝘦𝘦𝘥. ”}$
-
 ‎<details><summary>$\color{#e1435e}{about\ me}$</summary>
 $\color{#f9ae1b}{Hello!!\ You\ can\ call\ me\ iTrapped\ or\ Skittles!!\}$<br>
 $\color{#f9ae1b}{I'm\ a\ cis\ woman\ and\ my\ pronouns\ are\ she/any!!}$<br>
