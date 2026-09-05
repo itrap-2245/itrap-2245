@@ -4,8 +4,7 @@
 
 <img align="left" src="https://files.catbox.moe/viuise.png"
  alt="hi" height="400"/> ㅤ
-    ‎ 
-‎ 
+
 ‎<details><summary>$\color{#e1435e}{about\ me}$</summary>
 $\color{#f9ae1b}{Hello!!\ You\ can\ call\ me\ iTrapped\ or\ Skittles!!\}$<br>
 $\color{#f9ae1b}{I'm\ a\ cis\ woman\ and\ my\ pronouns\ are\ she/any!!}$<br>
@@ -29,11 +28,14 @@ $\color{#f9ae1b}{• Ex-friends}$
 <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a> <a href="https://github.com/pt-fashion">pt-fashion</a> <a href="https://github.com/pt-nominations">pt-nominations</a> <a href="https://github.com/pt-of-awesomeness">pt-of-awesomeness</a> <a href="https://github.com/ponytown-nominations">ponytown-nominations</a> <a href="https://github.com/ponytownyumeshippers">ponytownyumeshippers</a> <a href="https://github.com/underrated-pt">underrated-pt</a> <a href="https://github.com/pt-loveforfictional">pt-loveforfictional</a> <a href="https://github.com/ponychievements">ponychievements</a> <a href="https://github.com/pt-friendships">pt-friendships</a> <a href="https://github.com/character-town">character-town</a> <a href="https://github.com/style-town">style-town</a>
     </details>
 
+<img src="https://komarev.com/ghpvc/?username=itrap-2245&color=e6445f&style=upper&label=ANGELS"> <a href="https://www.imood.com/users/itrap_2245"><img src="https://moods.imood.com/display/uname-itrap_2245/fg-ffd700/bg-e6445f/imood.gif" alt="The current mood of itrap_2245 at www.imood.com" border="0"></a>
+
 <a href="https://itrap-2245.atabook.org" target="_blank">
    <img src="https://files.catbox.moe/siilh9.png" alt="hi" width="10%"/>
 </a> ㅤ ㅤ ㅤㅤ<a href="https://rentry.co/itrap_" target="_blank">
    <img src="https://files.catbox.moe/8htv6s.png" alt="hi" width="10%"/>
-</a>
+</a> 
+
 
 <img align="left" src="https://files.catbox.moe/2mzm93.png" height="140">
 
