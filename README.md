@@ -22,7 +22,7 @@ WIP.
    <img src="https://files.catbox.moe/8htv6s.png" alt="hi" width="10%"/>
 </a>
 
-<img align="left" src="https://files.catbox.moe/2mzm93.png" height="190">
+<img align="left" src="https://files.catbox.moe/2mzm93.png" height="160">
 
 <p align="center">
 <img src="https://files.catbox.moe/3yagg9.png" height="400">
