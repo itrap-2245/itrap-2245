@@ -30,11 +30,7 @@ $\color{#f9ae1b}{• Ex-friends}$
 
 <img src="https://komarev.com/ghpvc/?username=itrap-2245&color=e6445f&style=upper&label=ANGELS"> <a href="https://www.imood.com/users/itrap_2245"><img src="https://moods.imood.com/display/uname-itrap_2245/fg-ffd700/bg-e6445f/imood.gif" alt="The current mood of itrap_2245 at www.imood.com" border="0"></a>
 
-<a href="https://itrap-2245.atabook.org" target="_blank">
-   <img src="https://files.catbox.moe/siilh9.png" alt="hi" width="10%"/>
-</a> ㅤ ㅤ ㅤㅤ<a href="https://rentry.co/itrap_" target="_blank">
-   <img src="https://files.catbox.moe/8htv6s.png" alt="hi" width="10%"/>
-</a> 
+$\color{#e3445f}{♡}$ <a href="https://itrap-2245.straw.page">strawpage</a> $\color{#ffd700}{♡}$ <a href="https://itrap-2245.atabook.org">ata</a> $\color{#e3445f}{♡}$ <a href="https://rentry.co/itrap_">rentry</a> $\color{#ffd700}{♡}$ <a href="https://guns.lol/itrap_2245">guns.lol</a> $\color{#e3445f}{♡}$
 
 
 <img align="left" src="https://files.catbox.moe/2mzm93.png" height="140">
