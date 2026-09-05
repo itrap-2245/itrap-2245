@@ -8,10 +8,10 @@
 ‎ 
 ‎<details><summary>$\color{#e1435e}{about\ me}$</summary>
 $\color{#f9ae1b}{Hello!!\ You\ can\ call\ me\ iTrapped\ or\ Skittles!!\}$<br>
-$\color{#f9ae1b}{I'm\ a\ cis\ woman\ and\ my\ pronouns\ are\ she/any!!}$
-$\color{#f9ae1b}{PLEASE\ interact\ if\ you\ see\ me\ online\ (unless\ my\ name/status\ says\ otherwise)!!}$
-$\color{#f9ae1b}{I'm\ SUUUPEEEERR\ nice\ if\ you\ get\ to\ know\ me}$
-$\color{#f9ae1b}{or\ I\ REALLY\ like\ u/want\ 2\ be\ friends\ with\ u!!}$
+$\color{#f9ae1b}{I'm\ a\ cis\ woman\ and\ my\ pronouns\ are\ she/any!!}$<br>
+$\color{#f9ae1b}{PLEASE\ interact\ if\ you\ see\ me\ online\ (unless\ my\ name/status\ says\ otherwise)!!}$<br>
+$\color{#f9ae1b}{I'm\ SUUUPEEEERR\ nice\ if\ you\ get\ to\ know\ me}$<br>
+$\color{#f9ae1b}{or\ I\ REALLY\ like\ u/want\ 2\ be\ friends\ with\ u!!}$<br>
 </details>
 
 <details>
