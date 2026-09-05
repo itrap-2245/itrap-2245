@@ -23,6 +23,13 @@ WIP.
 <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a> <a href="https://github.com/pt-fashion">pt-fashion</a> <a href="https://github.com/pt-nominations">pt-nominations</a> <a href="https://github.com/pt-of-awesomeness">pt-of-awesomeness</a> <a href="https://github.com/ponytown-nominations">ponytown-nominations</a> <a href="https://github.com/ponytownyumeshippers">ponytownyumeshippers</a> <a href="https://github.com/underrated-pt">underrated-pt</a> <a href="https://github.com/pt-loveforfictional">pt-loveforfictional</a> <a href="https://github.com/ponychievements">ponychievements</a> <a href="https://github.com/pt-friendships">pt-friendships</a> <a href="https://github.com/character-town">character-town</a> <a href="https://github.com/style-town">style-town</a>
     </details>
 
+<details>
+ <summary>$\color{#e1435e}{DNI}$</summary>
+$\color{#f9ae1b}{• Racist,~transphobic,~etc...}$<br>
+$\color{#f9ae1b}{• Below~11~/~above~20}$<br>
+$\color{#f9ae1b}{• Ex-friends}$
+</details>
+
 <img align="left" src="https://files.catbox.moe/2mzm93.png" height="140">
 
 <p align="center">
