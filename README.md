@@ -13,6 +13,7 @@ $\color{#e1435e}{(unless\ my\ name/status\ says\ otherwise)!!}$<br>
 $\color{#e1435e}{I'm\ SUUUPEEEERR\ nice\ if\ you\ get\ to\ know\ me}$<br>
 $\color{#e1435e}{or\ I\ REALLY\ like\ u/want\ 2\ be\ friends\ with\ u!!}$<br>
 $\color{#e1435e}{I'm\ an/a(?)\ ISFP,\ sx6\ nd\ sx/sp\ 694!!}$
+$\color{#e1435e}{I\ LOVE\ gifting\ my\ friends\ stuff\ (when\ I\ have\ the\ motivation)!!}$
 </details>
 
 <details>
