@@ -6,7 +6,7 @@
  alt="hi" height="400"/> ㅤ
 
 ‎<details><summary>$\color{#f9ae1b}{about\ me}$</summary>
-$\color{#e1435e}{Hello!!\ You\ can\ call\ me\ iTrapped\ or\ Skittles!!\}$<br>
+$\color{#e1435e}{Hello!!\ You\ can\ call\ me\ iTrapped\ or\ Ame!!\}$<br>
 $\color{#e1435e}{I'm\ a\ cis\ woman\ and\ my\ pronouns\ are\ she/any!!}$<br>
 $\color{#e1435e}{PLEASE\ interact\ if\ you\ see\ me\ online}$
 $\color{#e1435e}{(unless\ my\ name/status\ says\ otherwise)!!}$<br>
