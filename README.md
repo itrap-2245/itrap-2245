@@ -1,1 +1,1 @@
-ugh. wip.
+for my own safety i disabled friend requests from everyone on discord. there's some stuff going around in my country and id rather not be sent some weird stuff. if you want to get in contact with me then go on my ata or reach out to one of my friends. thank you for understanding.
