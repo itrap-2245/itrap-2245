@@ -4,7 +4,7 @@
 
 <div align="center">
 
-$\color{#FF0000}{test}$
+$\color{#6d830f}{test}$
 
 <p align="center">
 <img width="1279" alt="image" src="https://64.media.tumblr.com/a95b7ee650900be084242400ca985193/957b52cf15532be4-e1/s2048x3072/8d97f822ad97e7e121f7bf10825b621fb87e8e7e.pnj" />
