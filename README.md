@@ -10,7 +10,7 @@
 
 <details closed>
   <summary>🍀</summary>
-  $\color{#6d830f}{fyi,\ we\ are\ NOT\ a\ system.\ we\ use\ we/us\ pronouns\ because\ we\ feel\ comfortable\ with\ those!!\ though\ we\ might\ usually\ use\ other\ pronouns.)$
+  $\color{#6d830f}{fyi,\ we\ are\ NOT\ a\ system.\ we\ use\ we/us\ pronouns\ because\ we\ feel\ comfortable\ with\ those!!\ though\ we\ might\ usually\ use\ other\ pronouns.}$
   
   $\color{#6d830f}{we're\ an\ afab\ and\ we\ identify\ as\ a\ female!!\ though\ we\ dont\ mind\ any\ kind\ of\ pronouns...}$
 
