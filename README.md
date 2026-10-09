@@ -17,7 +17,7 @@
   $\color{#6d830f}{more will be added later...}$
   </details>
 
-$\color{#6d830f}{ֺּׅ𓏽⑅ iTrappedノNicole  ₊˚⊹ ᰔ}$
+$\color{#6d830f}{ֺּׅ𓏽⑅ iTrappedノAngel  ₊˚⊹ ᰔ}$
 |------------------------------|
 
 <img width="550" alt="hi" src="https://files.catbox.moe/5w0asc.webp"/>
