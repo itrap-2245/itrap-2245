@@ -22,6 +22,8 @@ $\color{#6d830f}{we're\ a\ enfp\ 2w1\ (sx1\ wing)\ sx/sp\ 297\ (sx2\ sx9\ sp7\ i
   
   $\color{#6d830f}{we're\ an\ afab\ and\ we\ identify\ as\ a\ female!!\ though\ we\ dont\ mind\ any\ kind\ of\ pronouns...}$
 
+   $\color{#6d830f}{we're\ okay\ with\ getting\ called\ mother\ or\ father\ as\ a\ joke,\ but\ if\ you\ genuienly\ go\ around\ and\ call\ everyone\ kinship\ terms\ then\ pls\ iwc.\ we're\ HEAVILY\ uncomfortable\ with\ online\ families\ since\ we've\ NEVER\ been\ in\ one\ and\ not\ planning\ on\ soon.}$
+
   $\color{#6d830f}{more\ will\ be\ added\ later...}$
   </details>
 
