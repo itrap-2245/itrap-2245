@@ -12,6 +12,8 @@
   <summary>🍀</summary>
 $\color{#6d830f}{you\ can\ call\ us\ itrapped\ or\ angel!!}$
 
+$\color{#6d830f}{we'd\ love\ to\ get\ gifts\ in\ any\ kind\ of\ a\ form\ since\ we\ barely\ get\ any\ :(}$
+
 $\color{#6d830f}{we\ LOVE\ making\ new\ friends!!\ though\ we\ might\ block\ you\ if\ you\ dont\ spend\ time\ with\ us\ /\ wont\ talk\ to\ us\ but\ others...}$
 
 $\color{#6d830f}{we\ are\ taken\ by\ our\ lovely\ partner!!\ we\ love\ u\ sm\ hehee...\ ♡}$
