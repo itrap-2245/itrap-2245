@@ -12,6 +12,10 @@
   <summary>🍀</summary>
 $\color{#6d830f}{you\ can\ call\ us\ itrapped\ or\ angel!!}$
 
+$\color{#6d830f}{feel\ free\ to\ be\ our\ friend\ if\ we\ share\ interests!!\ we\ LOVE\ making friends\ hehe!!}$
+
+$\color{#6d830f}{you\ can\ add\ us\ on\ discord!!\ we\ have\ friend\ requests\ enabled\ for\ everyone!!}$
+
 $\color{#6d830f}{we'd\ love\ to\ get\ gifts\ in\ any\ kind\ of\ a\ form\ since\ we\ barely\ get\ any\ :(}$
 
 $\color{#6d830f}{we\ LOVE\ making\ new\ friends!!\ though\ we\ might\ block\ you\ if\ you\ dont\ spend\ time\ with\ us\ /\ wont\ talk\ to\ us\ but\ others...}$
