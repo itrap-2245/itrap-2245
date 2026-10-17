@@ -33,12 +33,12 @@ $\color{#6d830f}{we're\ a\ enfp\ 6w7\ (sp7\ wing)\ sp/sx\ 692\ (sp6\ sx9\ sx2\ i
   $\color{#6d830f}{more\ will\ be\ added\ later...}$
   </details>
 
-$\color{#6d830f}{ֺּׅ𓏽⑅ Jestem\ przez\ was\ przytłoczony,\  ₊˚⊹ ᰔ}$
+$\color{#6d830f}{ֺּׅ𓏽⑅ Завтра\ во\ сне\ Приду\ к\ тебе.\ Здравствуй.\  ₊˚⊹ ᰔ}$
 |------------------------------|
 
 <img width="550" alt="hi" src="https://files.catbox.moe/5w0asc.webp"/>
 
-$\color{#6d830f}{﹕\ Genetycznie\ obciążony.\ ੭﹕}$
+$\color{#6d830f}{﹕\ А\ чья\ там\ тень?\ ੭﹕}$
 |------------------------------|
 
 <details closed>
