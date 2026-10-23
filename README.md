@@ -22,7 +22,7 @@ $\color{#6d830f}{we\ LOVE\ making\ new\ friends!!\ though\ we\ might\ block\ you
 
 $\color{#6d830f}{we\ are\ taken\ by\ our\ lovely\ partner!!\ we\ love\ u\ sm\ hehee...\ ♡}$
 
-$\color{#6d830f}{we're\ a\ enfp\ 6w7\ sp/sx\ 692\ (we\ give\ up\ with\ ts\ bru)}$
+$\color{#6d830f}{we're\ a(?)\ ESTP\ 8w7\ sx/sp\ 852!!}$
   
   $\color{#6d830f}{fyi,\ we\ are\ NOT\ a\ system.\ we\ use\ we/us\ pronouns\ because\ we\ feel\ comfortable\ with\ those!!\ though\ we\ might\ usually\ use\ other\ pronouns\ in\ a\ normal\ conversation.}$
   
