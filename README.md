@@ -36,7 +36,7 @@ $\color{#f5adbd}{we're\ a(?)\ ESTP\ 8w7\ sx/sp\ 852!!}$
 $\color{#f5adbd}{ֺּׅ𓏽⑅ Завтра\ во\ сне\ Приду\ к\ тебе.\ Здравствуй.\  ₊˚⊹ ᰔ}$
 |------------------------------|
 
-<img width="1000" alt="hi" src="https://i.postimg.cc/6QBdWsC8/obraz-2026-10-24-200435429-ezgif-com-instagif.png"/>
+<img width="1000%" alt="hi" src="https://i.postimg.cc/6QBdWsC8/obraz-2026-10-24-200435429-ezgif-com-instagif.png"/>
 
 $\color{#f5adbd}{﹕\ А\ чья\ там\ тень?\ ੭﹕}$
 |------------------------------|
