@@ -4,7 +4,7 @@
 
 <div align="center">
 
-<img width="700" alt="hi" src="https://i.postimg.cc/zBbQ1KJp/obraz-2026-10-24-181646842-ezgif-com-instagif.png"/>
+<img width="700" alt="hi" src="https://i.postimg.cc/g0kJ4kYw/obraz-2026-10-24-182801128-ezgif-com-instagif.png"/>
 
 ![THE AUDIENCE](https://hits.sh/github.com/itrap-2245.svg?label=THE+AUDIENCE&extraCount=2&color=f7d7df&labelColor=f5adbd)
 
@@ -49,7 +49,7 @@ $\color{#f5adbd}{﹕\ А\ чья\ там\ тень?\ ੭﹕}$
 <a href="https://github.com/style-town">style-town</a> , <a href="https://github.com/casinotown">casinotown</a> , <a href="https://github.com/pt-fashion">pt-fashion</a> , <a href="https://github.com/pt-nominations">pt-nominations</a> , <a href="https://github.com/ponychievements">ponychievements</a> , <a href="https://github.com/ponytown-nominations">ponytown-nominations</a> , <a href="https://github.com/pt-loveforfictional">pt-loveforfictional</a> , <a href="https://github.com/kaotown">kaotown</a> , <a href="https://github.com/pt-of-awesomeness">pt-of-awesomeness</a> , <a href="https://github.com/pt-of-forsaken">pt-of-forsaken</a> , <a href="https://github.com/forsakentown">forsakentown</a> , <a href="https://github.com/daggerstruckmage">daggerstruckmage</a> , <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> , <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a> , <a href="https://github.com/choco-town">choco-town</a> , <a href="https://github.com/ship-town">ship-town</a>
 </details>
 
-<img width="700" alt="hi" src="https://i.postimg.cc/7ZzbbQKC/obraz-2026-10-24-182448437-ezgif-com-instagif.png"/>
+<img width="700" alt="hi" src="https://i.postimg.cc/hGjDTyrD/obraz-2026-10-24-182903718-ezgif-com-instagif.png"/>
 
 <p align="center">
 <img width="800" alt="image" src="https://i.postimg.cc/hj6HJMyF/obraz-2026-10-24-181532660-ezgif-com-instagif.png" />
