@@ -1,3 +1,9 @@
-![THE AUDIENCE](https://hits.sh/github.com/itrap-2245.svg?label=THE+AUDIENCE&extraCount=2&color=5f9bbd&labelColor=fff6dd)
+<div align="center">
 
-ok i give up. wip.
+![THE AUDIENCE](https://hits.sh/github.com/itrap-2245.svg?label=THE+AUDIENCE&extraCount=2&color=ffde6d&labelColor=f04c4d)
+
+$$\color{#ffffff}I \color{#ffde6d}give\color{#f04c4d}up.\ \color{#f04c4d}(This\color{#f04c4d}is/\ \color{#c230aa}a\color{#ffde6d}wip,\color{#c230aa}okay?$$
+
+<img align="center" alt="ichance" src="https://i.postimg.cc/NGZ29rzf/ichance.png" width="700"/>
+
+<a href="https://github.com/style-town">style-town</a> <a href="https://github.com/casinotown">casinotown</a> <a href="https://github.com/pt-fashion">pt-fashion</a> <a href="https://github.com/pt-nominations">pt-nominations</a> <a href="https://github.com/ponychievements">ponychievements</a> <a href="https://github.com/ponytown-nominations">ponytown-nominations</a> <a href="https://github.com/pt-loveforfictional">pt-loveforfictional</a> <a href="https://github.com/kaotown">kaotown</a> <a href="https://github.com/pt-of-awesomeness">pt-of-awesomeness</a> <a href="https://github.com/pt-of-forsaken">pt-of-forsaken</a> <a href="https://github.com/forsakentown">forsakentown</a> <a href="https://github.com/daggerstruckmage">daggerstruckmage</a> <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a> <a href="https://github.com/choco-town">choco-town</a> <a href="https://github.com/ship-town">ship-town</a> <a href="https://github.com/pt-everypony">pt-everypony</a> <a href="https://github.com/Knox-Event">Knox-Event</a> <a href="https://github.com/piddlesjet">piddlesjet</a> <a href="https://github.com/THE-TEMPIST">THE-TEMPIST</a> <a href="https://github.com/pts-r0ttingeyes">pts-r0ttingeyes</a>
