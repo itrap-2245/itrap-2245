@@ -2,7 +2,7 @@
 
 ![THE AUDIENCE](https://hits.sh/github.com/itrap-2245.svg?label=THE+AUDIENCE&extraCount=2&color=ffde6d&labelColor=f04c4d)
 
-$$\color{#ffffff}I \color{#ffde6d}give\color{#f04c4d}up.\ \color{#f04c4d}(This\color{#f04c4d}is/\ \color{#c230aa}a\color{#ffde6d}wip,\color{#c230aa}okay?$$
+$\color{#f04c4d}\textsf{wip}$
 
 <img align="center" alt="ichance" src="https://i.postimg.cc/NGZ29rzf/ichance.png" width="700"/>
 
