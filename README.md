@@ -12,7 +12,18 @@
  
 </sub>
 
-| <sub> <img align="center" alt="pixel" src="https://64.media.tumblr.com/91f090a37b17c318bc120da271a7083f/8a79805c334d096e-1e/s75x75_c1/8bee8734c64ebdfc0876048fd6a2f5eb9a3f682b.gifv"/> $\color{#74b5dd}\textsf{ESFP 4w3 sx/sp 469}$ |
+| <sub> <img align="center" alt="pixel" src="https://64.media.tumblr.com/91f090a37b17c318bc120da271a7083f/8a79805c334d096e-1e/s75x75_c1/8bee8734c64ebdfc0876048fd6a2f5eb9a3f682b.gifv"/> $\color{#74b5dd}\textsf{ESFP 4w3 sx/sp 469}$ <img align="center" alt="pixel" src="https://64.media.tumblr.com/f21f8854e29e0ceb982fca853c758b7a/8a79805c334d096e-a8/s75x75_c1/dc3e45410b0ba9dddd49ad3ba0c0d4f4d0d1f334.gifv"/> |
 |------------------------------|
 
-wip
+<img align="left" alt="pixel" src="https://i.postimg.cc/28KNrSsM/itap.png" width="35%"/>
+
+ㅤ
+
+ㅤ
+
+
+| $\color{#1e3a6c}\textsf{hello!! call me itrapped, furina or angel!!}$ |
+|------------------------------|
+
+| $\color{#1e3a6c}\textsf{pronouns are we/any, but i mostly use she/her!!}$
+|------------------------------|
