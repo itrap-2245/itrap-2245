@@ -1,55 +1,18 @@
-<p align="center">
-<img width="800" alt="image" src="https://i.postimg.cc/hj6HJMyF/obraz-2026-10-24-181532660-ezgif-com-instagif.png"/>
-</p>
+<img align="right" alt="itrap" src="https://i.postimg.cc/wTM4vDJk/obraz-2026-11-14-211719158-removebg-preview.png"  width="37%"/> 
+
+<div align="left">
+
+ㅤ ㅤㅤㅤ ㅤ ㅤ ㅤ  ㅤ ㅤㅤ![THE AUDIENCE](https://hits.sh/github.com/itrap-2245.svg?label=THE+AUDIENCE&extraCount=2&color=5f9bbd&labelColor=fff6dd) <img width="20" alt="heart" src="https://64.media.tumblr.com/7810f5285c8882c567739078659a0f1d/ea61347ca390bae0-06/s75x75_c1/e8b0c31e8ccb27d89b1023e0faa99faae74874a7.gifv" />
 
 <div align="center">
 
-<img width="560" alt="hi" src="https://i.postimg.cc/g0kJ4kYw/obraz-2026-10-24-182801128-ezgif-com-instagif.png"/>
+<sub> $\color{#1e3a6c}\textsf{me and my partner on}$ <a href="https://github.com/loverstown">loverstown</a> $\color{#1e3a6c}\textsf{!!  <333}$
 
-![THE AUDIENCE](https://hits.sh/github.com/itrap-2245.svg?label=THE+AUDIENCE&extraCount=2&color=f7d7df&labelColor=f5adbd)
+<sub> <a href="https://github.com/style-town">style-town</a> , <a href="https://github.com/casinotown">casinotown</a> , <a href="https://github.com/pt-fashion">pt-fashion</a> , <a href="https://github.com/pt-nominations">pt-nominations</a> , <a href="https://github.com/ponychievements">ponychievements</a> , <a href="https://github.com/ponytown-nominations">ponytown-nominations</a> , <a href="https://github.com/pt-loveforfictional">pt-loveforfictional</a> , <a href="https://github.com/kaotown">kaotown</a> , <a href="https://github.com/pt-of-awesomeness">pt-of-awesomeness</a> , <a href="https://github.com/pt-of-forsaken">pt-of-forsaken</a> , <a href="https://github.com/forsakentown">forsakentown</a> , <a href="https://github.com/daggerstruckmage">daggerstruckmage</a> , <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> , <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a> , <a href="https://github.com/choco-town">choco-town</a> , <a href="https://github.com/ship-town">ship-town</a> , <a href="https://github.com/pt-everypony">pt-everypony</a> , <a href="https://github.com/Knox-Event">Knox-Event</a> , <a href="https://github.com/piddlesjet">piddlesjet</a> , <a href="https://github.com/THE-TEMPIST">THE-TEMPIST</a> , <a href="https://github.com/pts-r0ttingeyes">pts-r0ttingeyes</a>
+ 
+</sub>
 
-<details closed>
-  <summary>🌸</summary>
-$\color{#f5adbd}{you\ can\ call\ us\ itrapped,\ furina\ or\ angel!!}$
-
-$\color{#f5adbd}{feel\ free\ to\ be\ our\ friend\ if\ we\ share\ interests!!\ we\ LOVE\ making friends\ hehe!!}$
-
-$\color{#f5adbd}{you\ can\ add\ us\ on\ discord!!\ we\ have\ friend\ requests\ enabled\ for\ everyone!!}$
-
-$\color{#f5adbd}{we'd\ love\ to\ get\ gifts\ in\ any\ kind\ of\ a\ form\ since\ we\ barely\ get\ any\ :(}$
-
-$\color{#f5adbd}{we\ LOVE\ making\ new\ friends!!\ though\ we\ might\ block\ you\ if\ you\ dont\ spend\ time\ with\ us\ /\ wont\ talk\ to\ us\ but\ others...}$
-
-$\color{#f5adbd}{we\ are\ taken\ by\ our\ lovely\ partner!!\ we\ love\ u\ sm\ hehee...\ ♡}$
-
-$\color{#f5adbd}{we're\ a(?)\ ESFP\ 8w7\ sx/sp\ 852!!}$
-  
-  $\color{#f5adbd}{fyi,\ we\ are\ NOT\ a\ system.\ we\ use\ we/us\ pronouns\ because\ we\ feel\ comfortable\ with\ those!!\ though\ we\ might\ usually\ use\ other\ pronouns\ in\ a\ normal\ conversation.}$
-  
-  $\color{#f5adbd}{we're\ an\ afab\ and\ we\ identify\ as\ a\ female!!\ though\ we\ dont\ mind\ any\ kind\ of\ pronouns...}$
-
-   $\color{#f5adbd}{we're\ okay\ with\ getting\ called\ mother\ or\ father\ as\ a\ joke,\ but\ if\ you\ genuienly\ go\ around\ and\ call\ everyone\ kinship\ terms\ then\ pls\ iwc.\ we're\ HEAVILY\ uncomfortable\ with\ online\ families\ since\ we've\ NEVER\ been\ in\ one\ and\ not\ planning\ on\ soon.}$
-
-  $\color{#f5adbd}{more\ will\ be\ added\ later...}$
-  </details>
-
-$\color{#f5adbd}{ֺּׅ𓏽⑅ Завтра\ во\ сне\ Приду\ к\ тебе.\ Здравствуй.\  ₊˚⊹ ᰔ}$
+| <sub> <img align="center" alt="pixel" src="https://64.media.tumblr.com/91f090a37b17c318bc120da271a7083f/8a79805c334d096e-1e/s75x75_c1/8bee8734c64ebdfc0876048fd6a2f5eb9a3f682b.gifv"/> $\color{#74b5dd}\textsf{ESFP 4w3 sx/sp 469}$ |
 |------------------------------|
 
-<img width="1000%" alt="hi" src="https://i.postimg.cc/6QBdWsC8/obraz-2026-10-24-200435429-ezgif-com-instagif.png"/>
-
-$\color{#f5adbd}{﹕\ А\ чья\ там\ тень?\ ੭﹕}$
-|------------------------------|
-
-<details closed>
-  <summary>💗</summary>
-  $\color{#f5adbd}{us\ and\ our\ partner\ on}$ <a href="https://github.com/loverstown">loverstown</a> $\color{#f5adbd}{<333}$
-  
-<a href="https://github.com/style-town">style-town</a> , <a href="https://github.com/casinotown">casinotown</a> , <a href="https://github.com/pt-fashion">pt-fashion</a> , <a href="https://github.com/pt-nominations">pt-nominations</a> , <a href="https://github.com/ponychievements">ponychievements</a> , <a href="https://github.com/ponytown-nominations">ponytown-nominations</a> , <a href="https://github.com/pt-loveforfictional">pt-loveforfictional</a> , <a href="https://github.com/kaotown">kaotown</a> , <a href="https://github.com/pt-of-awesomeness">pt-of-awesomeness</a> , <a href="https://github.com/pt-of-forsaken">pt-of-forsaken</a> , <a href="https://github.com/forsakentown">forsakentown</a> , <a href="https://github.com/daggerstruckmage">daggerstruckmage</a> , <a href="https://github.com/pt-walk-of-fame">pt-walk-of-fame</a> , <a href="https://github.com/pt-hall-of-media">pt-hall-of-media</a> , <a href="https://github.com/choco-town">choco-town</a> , <a href="https://github.com/ship-town">ship-town</a>
-</details>
-
-<img width="560" alt="hi" src="https://i.postimg.cc/hGjDTyrD/obraz-2026-10-24-182903718-ezgif-com-instagif.png"/>
-
-<p align="center">
-<img width="800" alt="image" src="https://i.postimg.cc/hj6HJMyF/obraz-2026-10-24-181532660-ezgif-com-instagif.png" />
-</p>
+wip
