@@ -2,6 +2,8 @@
 
 ![THE AUDIENCE](https://hits.sh/github.com/itrap-2245.svg?label=THE+AUDIENCE&extraCount=2&color=ffde6d&labelColor=f04c4d)
 
+<a href="https://www.imood.com/users/itrap_2245"><img src="https://moods.imood.com/display/uname-itrap_2245/fg-f04c4d/bg-ffde6d/imood.gif" alt="The current mood of itrap_2245 at www.imood.com" border="0"></a>
+
 $\color{#f04c4d}\textsf{Call me iTrapped, Furina or Angel!!}$
 
 $\color{#FFDE6D}\textsf{If you want to be friends then please come up / whisper me on pony town!! Or sign my ata...!!}$
