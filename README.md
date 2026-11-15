@@ -1,3 +1,5 @@
+<img align="center" alt="divider" src="https://files.catbox.moe/uep2nc.png">
+
 <div align="center">
 
 ![THE AUDIENCE](https://hits.sh/github.com/itrap-2245.svg?label=THE+AUDIENCE&extraCount=2&color=ffde6d&labelColor=f04c4d)
@@ -25,3 +27,5 @@ $\color{#FFDE6D}\textsf{If you want to be friends then please come up / whisper 
 
 </details>
 </div>
+
+<img align="center" alt="divider" src="https://files.catbox.moe/uep2nc.png">
