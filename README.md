@@ -4,11 +4,11 @@
 
 $\color{#f04c4d}\textsf{Call me iTrapped, Furina or Angel!!}$
 
-$\color{#f04c4d}\textsf{If you want to be friends then please come up / whisper me on pony town!! Or sign my ata...!!}$
+$\color{#FFDE6D}\textsf{If you want to be friends then please come up / whisper me on pony town!! Or sign my ata...!!}$
 
 <div align="center">
 
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Shantell+Sans&pause=1000&color=ED4E52&center=true&width=435&lines=Jestem+przez+was+przyt%C5%82oczony%2C;Genetycznie+obci%C4%85%C5%BCony.;Czuje+wielk%C4%85+s%C5%82abo%C5%9B%C4%87+w+sobie%2C;Dla+nich+jestem+nikt." alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Shantell+Sans&pause=1000&color=A272AC&center=true&width=435&lines=Jestem+przez+was+przyt%C5%82oczony%2C;Genetycznie+obci%C4%85%C5%BCony.;Czuje+wielk%C4%85+s%C5%82abo%C5%9B%C4%87+w+sobie%2C;Dla+nich+jestem+nikt." alt="Typing SVG" /></a>
 
 <img align="center" alt="ichance" src="https://i.postimg.cc/NGZ29rzf/ichance.png" width="700"/>
 
